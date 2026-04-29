@@ -1,4 +1,4 @@
-# Hi, I'm Daniyal Hassan 👋
+# Hi, I am Daniyal Hassan 👋
 
 16 y/o · AI/ML & DSA Enthusiast · Pakistan
 
